@@ -1,6 +1,8 @@
 # Pen
 Pen's Parade Use Pen (ineq) With (In) R Software
 
+https://www.youtube.com/watch?v=3gfcETwRU7s
+
 Olah Data Semarang
 
 WA : +6285227746673 (085227746673)
